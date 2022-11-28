@@ -1,2 +1,0 @@
-# franxism.github.io
-Franxis
